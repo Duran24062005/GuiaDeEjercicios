@@ -13,3 +13,13 @@ La natación es un ejercicio acuático completo que trabaja todos los grupos mus
 5. Mantén una técnica correcta enfocándote en la respiración
 6. Realiza series de velocidad o resistencia según tu objetivo
 7. Termina con nado suave y estiramientos en el agua
+
+## Consejos y Precauciones
+
+- Nunca nades solo; siempre con supervisión o compañía
+- Aprende técnicas básicas de respiración antes de nadar distancias largas
+- Usa gafas para proteger los ojos del cloro
+- Aplica protector solar si nadas al aire libre
+- Respeta las reglas de seguridad de la piscina
+- Sal del agua si sientes frío excesivo o fatiga
+- Considera tomar clases para mejorar tu técnica
