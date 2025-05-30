@@ -14,3 +14,13 @@ El ciclismo es una actividad cardiovascular de bajo impacto que se puede realiza
 - Mejora el equilibrio y coordinación
 - Puede realizarse como transporte ecológico
 - Actividad social y divertida
+
+## Instrucciones
+
+1. Ajusta la altura del asiento para una extensión completa de la pierna
+2. Comienza con un calentamiento de 5-10 minutos a ritmo suave
+3. Mantén una postura erguida con los hombros relajados
+4. Pedalea con un ritmo constante y controlado
+5. Varía la intensidad con intervalos o cambios de terreno
+6. Mantén las rodillas alineadas y evita balancearse
+7. Termina con enfriamiento gradual y estiramientos
