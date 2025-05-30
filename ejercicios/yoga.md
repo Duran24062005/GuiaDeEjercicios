@@ -14,3 +14,13 @@ El yoga es una práctica milenaria que combina posturas físicas (asanas), técn
 - Fortalece el sistema inmunológico
 - Promueve la relajación profunda
 - Desarrolla la conciencia corporal
+
+## Instrucciones
+
+1. Comienza con respiraciones profundas para centrar la mente
+2. Realiza un calentamiento suave con movimientos articulares
+3. Practica las posturas (asanas) con atención plena
+4. Mantén cada postura según tu capacidad (30 segundos a 2 minutos)
+5. Coordina la respiración con los movimientos
+6. Respeta los límites de tu cuerpo sin forzar
+7. Termina con relajación profunda (Savasana)
