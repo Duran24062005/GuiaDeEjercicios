@@ -24,3 +24,13 @@ Pilates es un sistema de ejercicios que se enfoca en el fortalecimiento del core
 5. Coordina la respiración con cada movimiento
 6. Realiza 5-10 repeticiones de cada ejercicio con calidad
 7. Termina con estiramientos suaves y relajación
+
+## Consejos y Precauciones
+
+- La calidad del movimiento es más importante que la cantidad
+- Mantén los hombros relajados y alejados de las orejas
+- No contengas la respiración durante los ejercicios
+- Progresa gradualmente en dificultad
+- Evita movimientos bruscos o con impulso
+- Consulta con un instructor certificado para aprender la técnica correcta
+- Modifica ejercicios si tienes lesiones o limitaciones
