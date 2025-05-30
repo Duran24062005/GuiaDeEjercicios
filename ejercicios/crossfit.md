@@ -24,3 +24,14 @@ CrossFit es un programa de acondicionamiento físico que combina movimientos fun
 5. Mantén buena forma técnica incluso bajo fatiga
 6. Registra tus tiempos y pesos para seguir progreso
 7. Termina con enfriamiento y movilidad
+
+## Consejos y Precauciones
+
+- Domina los movimientos básicos antes de añadir peso o velocidad
+- Escucha a tu cuerpo y descansa cuando sea necesario
+- No sacrifiques la técnica por velocidad o peso
+- Progresa gradualmente en intensidad y complejidad
+- Considera trabajar con un entrenador certificado
+- Permite tiempo adecuado de recuperación entre sesiones
+- Mantén una nutrición adecuada para apoyar la intensidad del entrenamiento
+- Detente si sientes dolor agudo o mareos extremos
