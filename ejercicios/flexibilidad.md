@@ -41,3 +41,20 @@ Los ejercicios de flexibilidad pueden ayudar a aumentar la conciencia del cuerpo
 **Mejora la flexibilidad de las articulaciones:**
 
 Al aumentar la movilidad articular, se pueden prevenir lesiones y mejorar la calidad de vida, especialmente con el avance de la edad. 
+
+
+## Instrucciones
+
+**Estiramientos:**
+
+- Suaves y lentos: Evita los movimientos bruscos o rápidos. 
+
+- Sin rebotar: Los rebotes pueden tensar los músculos y causar lesiones. 
+
+- Respiración: Respira profundamente durante todo el ejercicio de estiramiento. 
+
+- Tirón ligero: Sentir un ligero tirón es normal, pero no dolor. Si sientes dolor, significa que estás estirando demasiado. 
+
+- Tiempo de mantenimiento: Mantén cada estiramiento durante 10-30 segundos, o incluso 30 segundos, dependiendo del ejercicio. 
+
+- Repeticiones: Repite cada estiramiento varias veces (2-4) para obtener mejores resultados. 
