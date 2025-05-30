@@ -24,3 +24,14 @@ El boxeo es un deporte de combate que combina técnicas de golpeo con movimiento
 5. Practica con saco de boxeo o pads con un compañero
 6. Incluye ejercicios de acondicionamiento específicos
 7. Termina con estiramientos enfocados en hombros y muñecas
+
+## Consejos y Precauciones
+
+- Usa vendas para proteger muñecas y nudillos
+- Aprende técnica correcta antes de aumentar potencia
+- Mantén las muñecas rectas al golpear
+- Usa guantes apropiados para el tipo de entrenamiento
+- Calienta bien antes de golpear con fuerza
+- Evita el sobreentrenamiento para prevenir lesiones
+- Considera entrenar con un instructor calificado
+- Mantén hidratación adecuada durante entrenamientos intensos
