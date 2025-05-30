@@ -24,3 +24,13 @@ El ciclismo es una actividad cardiovascular de bajo impacto que se puede realiza
 5. Varía la intensidad con intervalos o cambios de terreno
 6. Mantén las rodillas alineadas y evita balancearse
 7. Termina con enfriamiento gradual y estiramientos
+
+## Consejos y Precauciones
+
+- Usa casco y equipo de protección apropiado
+- Mantén la bicicleta en buen estado mecánico
+- Ajusta correctamente la altura del asiento y manubrio
+- Hidrátate regularmente, especialmente en rutas largas
+- Usa ropa cómoda y visible si pedaleas en exteriores
+- Respeta las reglas de tránsito y señalización
+- Comienza con distancias cortas y aumenta gradualmente
