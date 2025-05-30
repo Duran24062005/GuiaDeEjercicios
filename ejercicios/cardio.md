@@ -50,3 +50,16 @@ Empieza en posición de zancada, con la pierna derecha delante y la pierna izqui
 Ponte de pie con los pies separados a la anchura de las caderas. Dobla ligeramente las rodillas y mantén el pecho elevado. Desplázate hacia un lado con al menos cuatro pasos breves y rápidos, haz una pausa y desplázate hacia el otro lado hasta alcanzar la posición inicial. Repite el movimiento una y otra vez.
 
 
+# Consejos
+
+Nuestra recomendación es combinar el entrenamiento cardiovascular con el entrenamiento de fuerza, ya que la combinación de los dos tipos de entrenamiento es la que más beneficios aporta a nuestra salud, superior a la de realizar los dos tipos de entrenamiento por separado. Lo ideal, en nuestra opinión, es realizar ejercicios de cardio, de 3 a 5 días por semana, en sesiones de 30 minutos.
+
+Respecto a si es mejor hacer los ejercicios de cardio antes o después del entrenamiento de fuerza, dependerá de los objetivos que queramos alcanzar. 
+
+Otra opción es hacerlo en días separados, lo que parece que nos permitirá recuperarnos mejor y realizar un entrenamiento más intenso, pero si la falta de tiempo nos lleva a entrenar fuerza y cardio en la misma sesión tendremos en cuenta las siguientes recomendaciones en función de nuestros objetivos:
+
+- Si queremos perder peso es preferible realizar el entrenamiento cardiovascular después del entrenamiento de fuerza. De esta manera, nuestro cuerpo ya habrá hecho durante el entrenamiento de fuerza un gasto calórico importante y acabar con ejercicios cardiovasculares, preferiblemente de intensidad moderada o alta, hará que nuestro cuerpo busque la energía necesaria en la grasa corporal.
+
+- Si queremos mejorar nuestra masa muscular, tampoco tiene sentido realizar el ejercicio cardiovascular antes que el entrenamiento de fortalecimiento muscular, pues ya habremos gastado energía y estaremos demasiado cansados para realizar un entrenamiento de fuerza lo suficientemente intenso para que sea efectivo.
+
+- i quieres mejorar tu resistencia al correr realiza primero el entrenamiento cardiovascular. Para mejorar nuestro rendimiento al correr largas distancias, no debemos dejar de lado el entrenamiento de fuerza, pero lo ideal es realizar primero el entrenamiento cardiovascular al completo y finalmente el de fuerza. Pese a lo cansados que podamos estar tras nuestro entrenamiento de resistencia, nuestro cuerpo tolerará bien realizar un plan de fuerza de intensidad medio-alta en la parte final de la sesión. En cambio, tras la rutina de fuerza es posible que el nivel de energía que tengamos disponible no sea suficiente para dar nuestras mejores prestaciones en el entrenamiento de resistencia cardiovascular con este objetivo específico.
