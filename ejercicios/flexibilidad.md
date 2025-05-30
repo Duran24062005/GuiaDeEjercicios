@@ -58,3 +58,7 @@ Al aumentar la movilidad articular, se pueden prevenir lesiones y mejorar la cal
 - Tiempo de mantenimiento: Mantén cada estiramiento durante 10-30 segundos, o incluso 30 segundos, dependiendo del ejercicio. 
 
 - Repeticiones: Repite cada estiramiento varias veces (2-4) para obtener mejores resultados. 
+
+## Consejos
+
+Para mejorar la flexibilidad, es crucial una rutina de estiramientos regular y constante, que debe incluir ejercicios suaves y lentos, evitando rebotes o movimientos bruscos. Es importante calentar los músculos antes de estirar y mantener la tensión durante unos 30 segundos, respirando normalmente. Si sientes dolor, significa que te has estirado demasiado, así que regresa a la posición anterior. 
