@@ -27,3 +27,11 @@ Sin embargo, esta concepción es completamente equivocada. No hay motivo alguno 
 - Una vez hayas regresado a la posición inicial, repite el ejercicio.
 
 - Haz 4 series de 12 repeticiones. Este número puede variar dependiendo de si solo quieres entrenar o si quieres fortalecer el abdomen.
+
+## Consejos
+
+Hacer ejercicio, practicar un deporte y estar físicamente activo es una oportunidad para cuidar nuestra salud y mejorar tanto nuestra condición física como mental. Hay evidencias claras de que realizar actividad física contribuye de manera efectiva a mejorar nuestra salud y evitar o paliar muchas enfermedades y problemas de salud. De forma adaptada a nuestra edad, todos podemos incorporar este hábito saludable en nuestra rutina diaria, tanto si practicas por primera vez o lo retomas después de un tiempo sin realizar ninguna actividad física. ¡Sigue nuestras recomendaciones y disfruta al máximo de los beneficios que te aportará!
+
+Para alcanzar las recomendaciones de una práctica de actividad física saludable, es muy importante tener en cuenta tres aspectos básicos: hacer ejercicio regularmente, reducir el tiempo de actividades sedentarias, e interrumpir los períodos sedentarios (evitando estar en la misma postura sentados mucho tiempo, haciendo breves sesiones de estiramientos o dando un breve paseo).
+
+Las actividades sedentarias son aquellas que requieren poco movimiento y por tanto muy poco gasto de energía, tales como desplazarse en automóvil, permanecer sentado viendo la televisión o frente a otras pantallas: teléfonos móviles, ordenadores, tabletas, videojuegos...
