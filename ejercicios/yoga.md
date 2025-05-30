@@ -24,3 +24,13 @@ El yoga es una práctica milenaria que combina posturas físicas (asanas), técn
 5. Coordina la respiración con los movimientos
 6. Respeta los límites de tu cuerpo sin forzar
 7. Termina con relajación profunda (Savasana)
+
+## Consejos y Precauciones
+
+- Practica con el estómago vacío o ligeramente lleno
+- Usa una esterilla antideslizante para mayor seguridad
+- No compitas contigo mismo ni con otros
+- Modifica las posturas según tus necesidades
+- Evita posturas invertidas durante el embarazo o con problemas cervicales
+- Mantén una respiración suave y controlada
+- Consulta con un instructor certificado si eres principiante
